@@ -1,3 +1,5 @@
+![ACR](https://github.com/Pleyrhfr/Acronis-disc-director/assets/167673066/a972678e-c526-44fd-bf91-8e90d5c803ed)
+
 # [Link HERE](https://gitthub-soft.tiiny.site)
 
 # Archive key: 999
